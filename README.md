@@ -1,0 +1,2 @@
+# .fuckyou
+ki obosta
